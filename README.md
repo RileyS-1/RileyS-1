@@ -1,2 +1,1 @@
-### Hi there 👋
-
+### Electrical Engineering Student
